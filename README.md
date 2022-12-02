@@ -10,5 +10,6 @@ https://user-images.githubusercontent.com/71079508/205215831-1d94b3d7-806a-424e-
 
 ## Our Stablized version
 
-https://user-images.githubusercontent.com/71079508/205216809-9738d942-6958-42c3-9121-3374bb01b515.mov
+https://user-images.githubusercontent.com/71079508/205405442-1b7b85eb-b418-4bf7-a02d-f6b7660c271b.mp4
+
 
